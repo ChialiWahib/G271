@@ -25,7 +25,7 @@ Liste des contributeurs
 3/
 4/
 5/
-6/wahib chiali
+6/WahibChiali
 7/
 8/
 9/
